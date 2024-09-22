@@ -1,6 +1,6 @@
 ### Integrantes
 
-93432 - João Pedro Marson
+93432 - João Pedro Marson ,
 92876 - Rafael de Lima Souza
 
 ### Link do Youtube
